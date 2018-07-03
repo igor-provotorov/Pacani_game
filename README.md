@@ -1,1 +1,1 @@
-Link https://abezuhara.github.io/ebam/index.html
+Link https://abezuhara.github.io/Pacani_game/index.html
